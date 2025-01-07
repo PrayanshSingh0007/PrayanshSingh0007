@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am 12 years old
+- ⚡ Fun fact: I am 12 years old and started coding at 11
 
 
